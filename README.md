@@ -1,2 +1,5 @@
-# Nguyen-Duc-Huy
-This description is only about my information
+# About me
+This discription is only about my information😆😆😆
+1. Coding
+2. Football
+3. Watching movies
